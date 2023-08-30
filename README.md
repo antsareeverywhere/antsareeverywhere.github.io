@@ -1,3 +1,3 @@
-You aren't ready yet!
+# Ants Are Everywhere
 
-In the meantime, check out some of my videos: https://www.youtube.com/@ants_are_everywhere
+Check out some of my videos: https://www.youtube.com/@ants_are_everywhere
